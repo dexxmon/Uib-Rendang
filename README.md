@@ -1,2 +1,0 @@
-# Uib-Rendang
-UIB RENDANG
